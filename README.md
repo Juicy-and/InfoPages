@@ -12,7 +12,7 @@
 **29**
 
 Проживаю в городе наукограде **Протвино**
-![](https://protvino.ru/files/image/32/25/86/zjv.jpg)
+![](https://api.360tv.ru/get_resized/9kIkih9KNBNzFKJt_zctCaxu7wFJWvveBDxyF65IbYo/width:1440/g:fp:0.5:0.5/aHR0cHM6Ly8yNTc4MjQuc2VsY2RuLnJ1L2JhYnlsb24tbWVkaWEvYXJ0aWNsZXMvaW1hZ2UvMjAyMC83L2YxL2EyLzEwNjAyMS0yNTNhZDFjMDJlYTc4ZGM1MDFmY2VkOGU1ZjBlZjY2ZDgyNDdhYzBmLmpwZw.webp)
 
 Работаю в фармацевтической компании
-![](https://upload.wikimedia.org/wikipedia/commons/thumb/f/f3/Geropharmlogo.gif/200px-Geropharmlogo.gif)
+![](https://russiaedu.ru/media/cache/image_md_resize/uploads/upload-images/2020/02/26/7ZlXCGZLxnI.jpg)
